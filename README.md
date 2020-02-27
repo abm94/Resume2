@@ -1,0 +1,1 @@
+This document is the curriculum vitae of Alexander Baldwin Mitchell, III. All rights reserved.
